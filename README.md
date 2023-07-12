@@ -1,6 +1,6 @@
 ## [EXPLOIT] ROBLOX
 _______________________________________________________________________________________________________________________________________    
-![maxresdefault (3)](https://github.com/JustAJoseph/roblox/assets/139366092/c808575f-fb1f-44f8-a93f-8bf787b21b1b)
+![maxresdefault (3)](https://github.com/JustAJoseph/roblox/assets/139366092/c808575f-fb1f-44f8-a93f-8bf787b21b1b) 
 
 
 
